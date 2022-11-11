@@ -10,6 +10,15 @@ A.Ç Mobilya yatak odaları; şık tasarımları, konforu arttıran eşsiz detay
             ile öne çıkan yatak odası takımları ile ferah mekanlar yaratabilirsiniz. Farklı fiyat aralığındaki ürünleri takım olarak alabilirken dilerseniz ayrı ayrı da alabilirsiniz. 
             Örme ve farklı tarzlarda kumaş seçenekleri ile de sunulan yatak başlığı modelleri, uyku konforunuzu arttıran karyola ve travers modelleri ile benzersiz bir uyum sağlıyor.
           
+Ev dekorasyonunun en önemli parçalarından biri olan yemek odası takımları, 
+          eşsiz tasarımları ve dayanıklı yapıları ile İder Mobilya’da buluşuyor. 
+          Salon renklerine ve dekorasyonuna uygun modelleri seçerek bu alanı kişiselleştirebilir. 
+         Sevdiklerinizle vakit geçireceğiniz konforlu bir alan yaratabilirsiniz. 
+         Yemek odası seçiminde salonunuzun büyüklüğü en önemli etkenlerden biridir. 
+         Daha dar alanlar için küçük ebatlarda veya açılım masa mekanizmasına sahip modelleri tercih edebilirsiniz. 
+        Misafir ağırladığınız zamanlarda tek hamle ile masayı uzatabilirsiniz. 
+        Seperatörlü ve seperatörsüz kaşıklık çekmecelerine çatal bıçak takımlarını rahatlıkla yerleştirebilirsiniz.
+        
 
 # Product
 
