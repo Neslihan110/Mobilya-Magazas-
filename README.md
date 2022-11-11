@@ -1,17 +1,13 @@
 # Mobilya-Magazas-
 #home Page
 
-![Contact](https://imgyukle.com/f/2022/11/11/JQkYB8.webp)
-
+![Contact](https://imgyukle.com/f/2022/11/11/JQk6wM.jpg)
 
 
 # Product
 
-![Contact](https://imgyukle.com/f/2022/11/11/JQkYB8.webp)
+![Contact](https://imgyukle.com/f/2022/11/11/JQk0Z8.jpg)
 
-![Contact]https://imgyukle2.com/f/2022/11/11/JQkaMj.webp)
-
-![Contact]https://imgyukle3.com/f/2022/11/11/JQkOeH.webp)
 
 # Contact
 
