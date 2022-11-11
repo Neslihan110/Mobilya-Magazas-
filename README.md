@@ -27,7 +27,7 @@ Salon ve oturma odası dekorasyonunun en önemli parçası olan koltuk takımı 
           Modern bir görünüm için ise kolçaklı ve ahşap ayaklı modeller tercih edilebilir. 
           Özellikle ceviz ve gürgen ayaklı tasarımlar hem modern hem de kaliteli bir görünüm sunmaktadır.
           Salon takımı modelleri arasında ikili, üçlü ve tekli berjer koltuk tasarımları yer almaktadır         
-# Ürün
+# Ürünler
 
 ![Contact](https://imgyukle.com/f/2022/11/11/JQk0Z8.jpg)
 
