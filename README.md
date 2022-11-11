@@ -19,10 +19,14 @@
           Misafir ağırladığınız zamanlarda tek hamle ile masayı uzatabilirsiniz. 
           Seperatörlü ve seperatörsüz kaşıklık çekmecelerine çatal bıçak takımlarını rahatlıkla yerleştirebilirsiniz.
         
-          Salon ve oturma odası dekorasyonunun en önemli parçası olan koltuk takımı modelleri, farklı tasarımları ve modern çizgileri ile dikkat çekiyor.
-          Her zevke uygun olarak tasarlanan salon takımı modelleri ile evinizi yenileyin! Koltuk takımı seçerken ilk olarak renk ve tasarımın salonun dekorasyonuna uygunluğu dikkate alınır.
-          Klasik çizgilerden hoşlananlar için kadife dokulu örme kumaştan üretilen modeller yerinde bir seçim olacaktır. Modern bir görünüm için ise kolçaklı ve ahşap ayaklı modeller tercih edilebilir. 
-          Özellikle ceviz ve gürgen ayaklı tasarımlar hem modern hem de kaliteli bir görünüm sunmaktadır. Salon takımı modelleri arasında ikili, üçlü ve tekli berjer koltuk tasarımları yer almaktadır.
+          Salon ve oturma odası dekorasyonunun en önemli parçası olan koltuk takımı modelleri, 
+          farklı tasarımları ve modern çizgileri ile dikkat çekiyor.
+          Her zevke uygun olarak tasarlanan salon takımı modelleri ile evinizi yenileyin!
+          Koltuk takımı seçerken ilk olarak renk ve tasarımın salonun dekorasyonuna uygunluğu dikkate alınır.
+          Klasik çizgilerden hoşlananlar için kadife dokulu örme kumaştan üretilen modeller yerinde bir seçim olacaktır.
+          Modern bir görünüm için ise kolçaklı ve ahşap ayaklı modeller tercih edilebilir. 
+          Özellikle ceviz ve gürgen ayaklı tasarımlar hem modern hem de kaliteli bir görünüm sunmaktadır.
+          Salon takımı modelleri arasında ikili, üçlü ve tekli berjer koltuk tasarımları yer almaktadır.
           
 # Product
 
