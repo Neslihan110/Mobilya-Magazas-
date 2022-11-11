@@ -1,6 +1,6 @@
 # Mobilya-Magazası
 
-# Home Page
+# Ana Sayfa
 
 ![Contact](https://imgyukle.com/f/2022/11/11/JQk6wM.jpg)
 
@@ -27,11 +27,10 @@ Salon ve oturma odası dekorasyonunun en önemli parçası olan koltuk takımı 
           Modern bir görünüm için ise kolçaklı ve ahşap ayaklı modeller tercih edilebilir. 
           Özellikle ceviz ve gürgen ayaklı tasarımlar hem modern hem de kaliteli bir görünüm sunmaktadır.
           Salon takımı modelleri arasında ikili, üçlü ve tekli berjer koltuk tasarımları yer almaktadır         
-# Product
+# Ürün
 
 ![Contact](https://imgyukle.com/f/2022/11/11/JQk0Z8.jpg)
 
-
-# Contact
+# İletişim
 
 ![Contact](https://imgyukle.com/f/2022/11/11/JQkg1I.png)
